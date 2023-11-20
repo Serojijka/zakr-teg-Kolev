@@ -1,1 +1,0 @@
-# zakr-teg-Kolev
